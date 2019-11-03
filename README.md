@@ -1,2 +1,3 @@
 # -Hello-World
 Just an amateur trying to learn everything he can so i can open a legit business for some no so legit reasons...
+Im 26 years old and im homeless. ive been doing everything i can to get myself out of the situation im in and i dont have time to explain but im here to use github to come out of this unfortunate turn of events and get back on my fet again hopefully sooner than later.
